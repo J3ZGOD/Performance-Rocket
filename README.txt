@@ -17,7 +17,7 @@ or
 
 ROCKET V1 was launched 20/12/2020.
 You can get a Serial Key for:
--> 2€ via paypal
+-> 2€ via PayPal or Skrill
 or
 -> 1,5€ in CSGO items
 
